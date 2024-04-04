@@ -1,0 +1,6 @@
+Sprawozdanie
+=============
+
+CHOLERCIA
+---------
+zabij mnie
